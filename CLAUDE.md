@@ -1,0 +1,1 @@
+For all SEO work, read and follow @srizen-seo-context.md before making changes.
